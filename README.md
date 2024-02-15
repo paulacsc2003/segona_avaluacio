@@ -1,0 +1,1 @@
+# segona_avaluacio
